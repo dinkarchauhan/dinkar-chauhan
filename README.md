@@ -1,2 +1,0 @@
-# dinkar-chauhan
-my-portfolio
